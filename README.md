@@ -1,4 +1,4 @@
-### Hi there 👋
+### Nathan Guan. struggling university student.
 
 I am a first year CSE major at UCI. I love the idea of code and how it is shaping media and culture in today's world. I want to delve into the world of code and programming so I can further enrich myself with the internet environment that is taking over my life. **pls help me, im dying inside ;-;**
 
