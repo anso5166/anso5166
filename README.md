@@ -1,5 +1,8 @@
 ### Hi there 👋
 
+I am a first year CSE major at UCI. I love the idea of code and how it is shaping media and culture in today's world. I want to delve into the world of code and programming so I can further enrich myself with the internet environment that is taking over my life. **pls help me, im dying inside ;-;**
+In my freetime I love listening to music, checkout my [Spotify](https://open.spotify.com/user/x3cjicyrvdxhg1vi0fr49ryqm?si=902feb5cacb743cc) for some sick beats.
+
 <!--
 **anso5166/anso5166** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
